@@ -4,4 +4,4 @@ pronouns: he/him
 <br/>
 currently learning: F#
 <br/>
-discord: hypex02
+https://open.spotify.com/playlist/5xUDgzg96ua8hMbIrKAKcf?si=f1bc83aa77304be4
